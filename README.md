@@ -82,4 +82,6 @@
 
 **Play Fortuna** — это не просто онлайн-казино, а целый мир азарта, удачи и больших выигрышей. С его **официальным сайтом плей фортуна**, мобильной версией, бонусами и возможностью использования **зеркала плейфортуна**, каждый игрок получает максимум удовольствия от игры. Присоединяйтесь уже сегодня и испытайте удачу в одном из самых надежных и популярных онлайн-казино!
 
+**Теги**: play fortuna официальный сайт, play fortuna зеркало, вход в play fortuna, казино play fortuna, play fortuna регистрация, play fortuna личный кабинет, play fortuna мобильная версия, play fortuna приложение, play fortuna бонусы, play fortuna промокод, play fortuna фриспины, play fortuna без депозита, play fortuna турниры, play fortuna слоты, play fortuna автоматы, play fortuna вывод средств, play fortuna пополнение счета, play fortuna техподдержка, play fortuna отзывы, play fortuna надежность, play fortuna лицензия, play fortuna акции, play fortuna работающее зеркало, play fortuna сегодня, play fortuna альтернативный адрес, play fortuna доступ, play fortuna блокировка, play fortuna как зайти
+
 --- 
