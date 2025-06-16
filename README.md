@@ -4,6 +4,8 @@
 
 ![Зеркало Play Fortuna](https://github.com/user-attachments/assets/4d50a912-34b4-432d-accd-4d8a6456de40)
 
+- [Зеркало плейфортуна сегодня](https://fortuna-promo1.net/alt/playfortuna/registration?62d7e0ecd1effb88f52abd224f93d3e7)
+
 
 ## Официальный сайт плей фортуна – вход без ограничений
 
@@ -70,7 +72,6 @@
 ## Полезные ссылки:
 
 - [Официальный сайт плей фортуна](https://fortuna-promo1.net/alt/playfortuna/registration?62d7e0ecd1effb88f52abd224f93d3e7)  
-- [Зеркало плейфортуна сегодня](https://fortuna-promo1.net/alt/playfortuna/registration?62d7e0ecd1effb88f52abd224f93d3e7)
 
 ![Плей Фортуна сайт](https://github.com/user-attachments/assets/a80a3e83-ffa4-4dc2-a61b-b95a36495f2a)
 
